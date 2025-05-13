@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kelly7172
 - 👀 I’m interested in making money
 - 🌱 I’m currently learning to use affiliate marketing and meme coins
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate with the people who expect on this to guide
 - 📫 How to reach me through: my email
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im slow learner
